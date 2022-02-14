@@ -27,5 +27,3 @@ DEIXO MEU CARINHO PARA QUEM LEU MEU DEADME.....
 
 ![MomentCam_20220214022609_06201000100190001](https://user-images.githubusercontent.com/96752968/153805923-43c133df-461f-4039-aed0-53ad491df034.gif)
 
-Em
-Em
